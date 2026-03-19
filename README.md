@@ -51,8 +51,6 @@ Senior Partnerships & Business Development leader with 8+ years of experience dr
 ## 🔍 Current Focus
 
 Increasingly focused on **API integration monetisation and partner-led growth**, with the goal of turning integrations and strategic alliances into measurable revenue lift.  
-
-*Example: Recently drafted a partnerships growth playbook exploring how platforms like RevenueCat can scale through high-impact ecosystem integrations and data-driven partner strategies.*
 ---
 
 ## 📄 Resume
