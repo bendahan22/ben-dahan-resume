@@ -1,6 +1,7 @@
 # Benjamin Dahan – Tech Partnerships & Sales Leadership | Revenue Growth
 
 Senior Partnerships & Business Development leader with 8+ years of experience driving **B2B growth, API integrations, and partner ecosystems** in travel tech. Skilled at turning integrations, partner networks, and strategic alliances into **measurable revenue impact** across international markets.
+
 ---
 
 ## 🚀 Key Achievements
