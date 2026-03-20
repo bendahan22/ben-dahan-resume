@@ -57,6 +57,7 @@ Increasingly focused on **API integration monetisation and partner-led growth**,
 
 [Download PDF](./resume.pdf)
 
+Curious? There might be something hidden below 👀
 <!-- 
 Decode me:
 SSBidWlsZCBwYXJ0bmVyc2hpcHMgdGhhdCBkcml2ZSByZXZlbnVlIGFuZCBzY2FsZSBncm93dGguIExldCdzIHRhbGsu
